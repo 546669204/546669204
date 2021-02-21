@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-<p align="center"> Visitor count<br> <img src="https://profile-counter.glitch.me/Chocolate1999/count.svg" /></p>
+<p align="center"> Visitor count<br> <img src="https://profile-counter.glitch.me/546669204/count.svg" /></p>
 
 
 ## 𝗦𝘁𝗮𝘁𝘀
